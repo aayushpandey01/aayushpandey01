@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **aayushpandey0001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19uecx0ek4TAlrxqDCu5YSt1Kj6IIESYy/view?usp=drivesdk](https://drive.google.com/file/d/19uecx0ek4TAlrxqDCu5YSt1Kj6IIESYy/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19uecx0ek4TAlrxqDCu5YSt1Kj6IIESYy/view?usp=drivesdk](https://drive.google.com/file/d/1bKemsAZ84yyXu8JduqzcH5whCILsSbsz/view?usp=drivesdk)
 
 - ⚡ Fun fact **I’ve had longer conversations with ChatGPT than with humans some days**
 
